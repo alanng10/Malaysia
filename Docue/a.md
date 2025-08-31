@@ -39,3 +39,7 @@ The spell is:
 Diaga word has pronounce.
 Diaga word "Dia" is pronounce as "dia" in "dial" in English.
 Diaga word "ga" is pronounce as "gu" in "gum" in English.
+
+Malaysia has define done.
+
+The done is human civil live.
