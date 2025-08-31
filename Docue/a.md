@@ -24,9 +24,9 @@ The plane is any plane.
 
 Diaga word is applicable to any human, any civil, any earth, any plane.
 
-Diaga meaning is not tagged with the existence of specifc human race.
+Diaga meaning is not tagged with the existence of specific human race.
 
-Diaga meaning is not tagged with the existence of specifc human kind.
+Diaga meaning is not tagged with the existence of specific human kind.
 
 Diaga word has spell.
 The spell is:
