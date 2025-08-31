@@ -23,3 +23,7 @@ The earth is any earth.
 The plane is any plane.
 
 Diaga word is applicable to any human, any civil, any earth, any plane.
+
+Diaga meaning is not tagged with the existence of specifc human race.
+
+Diaga meaning is not tagged with the existence of specifc human kind.
