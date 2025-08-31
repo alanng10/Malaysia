@@ -27,3 +27,11 @@ Diaga word is applicable to any human, any civil, any earth, any plane.
 Diaga meaning is not tagged with the existence of specifc human race.
 
 Diaga meaning is not tagged with the existence of specifc human kind.
+
+Diaga word has spell.
+The spell is:
+"D" for Done Live.
+"i" for inter any.
+"a" for any class.
+"g" for galaxy time.
+"a" for all kind.
