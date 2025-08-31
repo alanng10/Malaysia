@@ -28,6 +28,8 @@ Diaga meaning is not tagged with the existence of specific human race.
 
 Diaga meaning is not tagged with the existence of specific human kind.
 
+Diaga meaning is not tagged with the existence of specific outer.
+
 Diaga word has spell.
 The spell is:
 "D" for Done Live.
