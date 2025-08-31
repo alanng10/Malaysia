@@ -13,3 +13,13 @@ The meaning is human civil earth.
 Diaga word has 1 meaning.
 
 The meaning is human civil plane.
+
+The human is any human.
+
+The civil is any civil.
+
+The earth is any earth.
+
+The plane is any plane.
+
+Diaga word is applicable to any human, any civil, any earth, any plane.
