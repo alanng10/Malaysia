@@ -45,3 +45,7 @@ Diaga word "ga" is pronounce as "gu" in "gum" in English.
 Malaysia has define done.
 
 The done is human civil live.
+
+Malaysia has define office lang.
+
+The office lang is English.
