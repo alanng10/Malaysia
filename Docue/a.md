@@ -30,8 +30,6 @@ Diaga meaning is not tagged with the existence of specific human kind.
 
 Diaga meaning is not tagged with the existence of specific govern.
 
-Diaga meaning is not tagged with the existence of specific area.
-
 Diaga meaning is not tagged with the existence of specific outer.
 
 Diaga word has spell.
