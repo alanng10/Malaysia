@@ -51,3 +51,7 @@ The done is human civil live.
 Malaysia has define office lang.
 
 The office lang is English.
+
+Malaysia has define capital city.
+
+The capital city is Landeran.
