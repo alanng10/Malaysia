@@ -105,6 +105,9 @@ The spell is:
 Terra word has pronounce.
 Terra word is pronounce same as "terra" in English.
 
+Terra human has word.
+The word is Terran.
+
 Malaysia has define done.
 
 The done is human civil live.
