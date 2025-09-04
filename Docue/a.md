@@ -64,6 +64,16 @@ Terra word has 1 meaning.
 
 The meaning is titan land center.
 
+The titan is any titan.
+
+The entire is any entire.
+
+The plane is any plane.
+
+The land is any land.
+
+The center is any center.
+
 Malaysia has define done.
 
 The done is human civil live.
