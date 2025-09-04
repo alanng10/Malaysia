@@ -84,6 +84,14 @@ Terra meaning is not tagged with the existence of specific govern.
 
 Terra meaning is not tagged with the existence of specific outer.
 
+Terra word has spell.
+The spell is:
+"T" for Titan Plane.
+"e" for effect all.
+"r" for radius total.
+"r" for radius time.
+"a" for all class.
+
 Malaysia has define done.
 
 The done is human civil live.
