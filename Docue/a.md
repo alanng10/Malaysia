@@ -50,11 +50,19 @@ The name is "Terra".
 
 Terra word has 1 meaning.
 
+The meaning is titan entire park.
+
+Terra word has 1 meaning.
+
 The meaning is titan entire plane.
 
 Terra word has 1 meaning.
 
 The meaning is titan entire land.
+
+Terra word has 1 meaning.
+
+The meaning is titan park center.
 
 Terra word has 1 meaning.
 
