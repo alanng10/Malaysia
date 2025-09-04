@@ -44,6 +44,26 @@ Diaga word has pronounce.
 Diaga word "Dia" is pronounce as "dia" in "dial" in English.
 Diaga word "ga" is pronounce as "gu" in "gum" in English.
 
+Malaysia has 1 define name.
+
+The name is "Terra".
+
+Terra word has 1 meaning.
+
+The meaning is titan entire plane.
+
+Terra word has 1 meaning.
+
+The meaning is titan entire land.
+
+Terra word has 1 meaning.
+
+The meaning is titan plane center.
+
+Terra word has 1 meaning.
+
+The meaning is titan land center.
+
 Malaysia has define done.
 
 The done is human civil live.
