@@ -102,6 +102,20 @@ The spell is:
 "r" for radius time.
 "a" for all class.
 
+Terra word has 1 meaning.
+
+The meaning is One Titan By Terra.
+
+Terra meaning is same not tagged.
+
+Terra word has 1 spell.
+The spell is:
+"T" for Titan All.
+"e" for effect plane.
+"r" for radius total.
+"r" for radius time.
+"a" for all class.
+
 Terra word has pronounce.
 Terra word is pronounce same as "terra" in English.
 
