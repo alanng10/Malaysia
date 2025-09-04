@@ -84,7 +84,7 @@ The land is any land.
 
 The center is any center.
 
-Terra word is applicable to any titan, any entire, any plane, any land, any center.
+Terra word is applicable to any titan, any entire, any park, any plane, any land, any center.
 
 Terra meaning is not tagged with the existence of specific human race.
 
