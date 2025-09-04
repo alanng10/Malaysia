@@ -74,6 +74,8 @@ The land is any land.
 
 The center is any center.
 
+Terra word is applicable to any titan, any entire, any plane, any land, any center.
+
 Malaysia has define done.
 
 The done is human civil live.
