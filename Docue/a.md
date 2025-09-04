@@ -92,6 +92,9 @@ The spell is:
 "r" for radius time.
 "a" for all class.
 
+Terra word has pronounce.
+Terra word is pronounce same as "terra" in English.
+
 Malaysia has define done.
 
 The done is human civil live.
