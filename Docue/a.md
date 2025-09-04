@@ -104,7 +104,7 @@ The spell is:
 
 Terra word has 1 meaning.
 
-The meaning is One Titan By Terra.
+The meaning is One Titan in Terra.
 
 Terra meaning is same not tagged.
 
