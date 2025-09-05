@@ -108,6 +108,8 @@ The meaning is One Titan in Terra.
 
 Terra meaning is same not tagged.
 
+Terra meaning is not tagged with the existence of specific one.
+
 Terra word has 1 spell.
 The spell is:
 "T" for Titan All.
